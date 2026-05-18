@@ -1,1 +1,0 @@
-# Anbar-dar-etm-Sistemi
